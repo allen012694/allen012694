@@ -14,4 +14,4 @@ And I love making friends with interesting people.
 So... feel free to reach me if you want to talk
 
 ### 📫 How to reach me?
-Email please -----> allen012694@gmaul.com
+Email please -----> allen012694@gmail.com
